@@ -1,1 +1,1 @@
-halo semoa
+sekaraang lagi uas
